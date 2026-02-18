@@ -1,0 +1,100 @@
+# Blumio – Antigewaltsong
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:01.42] Aha
+[00:01.97] Ja, sehr guten. sehr, sehr guten Tag meine Damen und Herren
+[00:04.92] Mein Name ist Blumio und an alle friedlichen Leute möchte ich appelieren
+[00:08.24] Das ist mein Antigewaltsong
+[00:21.74] 
+[00:10.54] Es war einmal ein Junge und sein Name war Raphael
+[00:13.43] Er ist immer grimmig drauf, so wie Gargamel
+[00:16.09] Einer dieser Jungen, die im Bus immer hinten sitzen
+[00:18.59] Zudem ist er meistens schmutzig und stinkt 'n bisschen
+[00:21.59] Aus seinem Handy dröhnt "Sonnenbankflavour"
+[00:24.06] Die Kinder schreien schon: "Da kommt der Schläger!"
+[00:26.66] Er ist schon wieder unterwegs mit seiner großen Clique
+[00:29.03] Sie klauen dir Handy, Portmonee und ein SchockoTicket
+[00:31.74] Er macht was er will, benimmt sich wie ein Alpha-Tier
+[00:34.34] Man er schmeißt sogar Plastikmüll zum Altpapier
+[00:36.92] Obwohl der plastikmüll Korb direkt daneben steht
+[00:39.67] Er will halt immer als Rebell durch sein Leben gehen
+[00:42.18] Zwei Meter Riese, nein er ist kein Phrasenbrecher
+[00:44.80] Man könnte sagen er ist sowas wie ein Nasenbrecher
+[00:47.54] Wenn du ihn sehen solltest, solltest du dich schnell verpissen
+[00:49.90] Denn ehe du dich versiehst, hast du schon ne Schelle sitzen
+[01:19.40] 
+[00:52.47] Hey Bruder warum bist du denn so aggressiv?
+[00:55.26] Häng doch auch mal ab mit paar netten Mathefreaks
+[00:57.77] Antigewaltsong . Das ist mein Antigewaltsong
+[01:02.87] Hey Bruder warum musst du immer zuhauen?
+[01:05.73] Weg mit dem Totschläger, nimm lieber den Blumenstraus
+[01:08.10] Antigewaltsong . Das ist mein Antigewaltsong
+[01:30.10] 
+[01:13.33] Vielleicht ist er so geworden, weil er schwierige Eltern hatte
+[01:15.90] Früher ging Raphael mit mir in die selbe Klasse
+[01:18.72] Er war der eine dicke Junge mit der Stubsnase
+[01:21.33] Ach die Erinnerungen kommen hoch wie ne Luftblase
+[01:24.04] Die süße Tina ist auf mich abgefahren
+[01:26.34] Bis Raphael kam und mich in den Schwitzkasten nahm
+[01:28.81] Und dann vor Tinas Augen meine Unterhose hochzog
+[01:31.76] Und meine Schulzeit danach war ziemlich trostlos
+[01:34.48] Doch was jetzt geschieh könnt ihr ruhig in die Zeitung schreiben
+[01:37.06] Heute werde ich Raphael endlich meine Meinung geigen
+[01:39.59] Kommt doch mit, damit ihr seht, dass ich nicht lüge
+[01:41.97] Da ist Raphael, der da grad die Skater Kids verprügelt
+[01:44.45] Hey Raphael weißt du dass Gewalt keine Lösung ist?
+[01:47.28] Alter du kennst mich doch, was soll denn jetzt der böse Blick?
+[01:49.94] Komm mir nicht nah, ich bin antigewalt
+[01:52.22] Man Raphael nimm sofort die Hand von meinem Hals
+[02:16.22] 
+[01:54.82] Hey Bruder warum bist du denn so aggressiv?
+[01:57.78] Häng doch auch mal ab mit paar netten Mathefreaks
+[02:00.37] Antigewaltsong . Das ist mein Antigewaltsong
+[02:05.44] Hey Bruder warum musst du immer zuhauen?
+[02:08.36] Weg mit dem Totschläger, nimm lieber den Blumenstraus
+[02:10.85] Antigewaltsong . Das ist mein Antigewaltsong
+[02:32.85] 
+[02:15.94] Und nach fünf Minuten nimm dieser verstandlose Hulk
+[02:18.50] Endlich seine riesengroße Hand von meinem Hals
+[02:21.16] Ich hole Luft und nach dieser kurzen Schrecksekunde
+[02:23.91] Leute ich sie ein, Judgement Day, auf zur letzten Runde
+[02:26.57] Ich sage ihm: "Hey, es ist eigentlich verständlich,
+[02:28.93] Dass du dich so verhälst, weil du geistig beschränkt bist."
+[02:31.58] (Was sagst du?)
+[02:32.32] Ehh, stop, nicht schlagen, ist ja gar nicht bös' gemeint
+[02:34.14] Ich finde halt nur, es wird langsam höchste Zeit
+[02:36.72] Dass du dich ändern tust denn ich meine, wie gesagt
+[02:39.51] Wer nur Böses tut, dem wird auch noch Böses wiederfahren
+[02:41.96] Und er sagt: "Was, wo hast du den Scheiß denn aufgeschnappt?"
+[02:44.66] Zeigt mir den Vogel und hat mich laut ausgelacht
+[02:47.55] Just im Moment hab ich kurz hinter ihm geguckt
+[02:49.71] Plötzlich springen circa 10 Berggorilla aus dem Busch
+[02:52.37] Die heute zufällig aus dem Zoo ausgebrochen waren
+[02:55.22] Ihre Genitalien sind groß und auch knochen hart
+[02:57.99] Und scheinbar halten sie Raphael für ein Weibchen
+[03:00.23] Weswegen sie nacheinander brutal in ihm eindringen
+[03:02.92] Raphael schreit: "Ahh mein Arschloch wird gefickt!"
+[03:05.47] Und ich denke mir, das ist wohl die Moral von der Geschicht'.
+[03:35.97] 
+[03:08.09] Hey Bruder warum bist du denn so aggressiv?
+[03:10.90] Häng doch auch mal ab mit paar netten Mathefreaks
+[03:13.31] Antigewaltsong . Das ist mein Antigewaltsong
+[03:18.52] Hey Bruder warum musst du immer zuhauen?
+[03:21.62] Weg mit dem Totschläger, nimm lieber den Blumenstraus
+[03:23.80] Antigewaltsong . Das ist mein Antigewaltsong
+[03:45.80] 
+[03:29.29] Siehst du Raphael, das hast du jetzt davon
+[03:32.16] Ach, komm Raphael wein nicht so wisch die Tränen doch weg
+[03:34.66] Komm steh auf, komm ich wisch dein Arschloch ab
+[03:36.64] Guck, (danke) geht ab, siehste (danke)
+[03:38.71] *Pust* *pust* Guck mal da. da fliegt das Aua (Äh, ja!)
+[03:41.77] Ach, siehste Raphael, siehste Gewalt lohnt sich einfach nicht
+[03:44.21] Weißte, im Leben kommt alles auf dich zurück, weißte?
+[03:45.72] So viele schöne Sachen im Leben (Aber!)
+[03:48.04] Guck mal dahinten siehste das Katzenbaby? (Ja!)
+[03:50.34] Ist es nicht süß?
+[03:51.41] Och. och ja. *miau* oh. ja *miau* *miau*
+[03:54.65] Siehste, komm Raphael, lach doch mal
+```
